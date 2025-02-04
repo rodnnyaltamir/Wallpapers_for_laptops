@@ -1,1 +1,1 @@
-<h1>"Wallpapers gozus"</h1>
+<h1>Wallpapers gozus</h1>
